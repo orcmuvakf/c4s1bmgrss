@@ -1,2 +1,1 @@
-# c4s1bmgrss
-Götlere Katlaanmak Sandalyenin İşi Benim Değil
+* Doğukan Berge - Ahmt Emre Deniz - Izdırap Olacağım Sizlere Yakında Kimliğinizi De Paylaşacağım (Ezel Babadan Selamlar)
